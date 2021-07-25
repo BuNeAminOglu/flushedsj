@@ -1,1 +1,2 @@
-# flushedsj
+# ?
+Hayırdır emmioğlu neye baktın?
